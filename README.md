@@ -1,6 +1,6 @@
 ## Hi, I'm Sofía Chiabudini 🙂
 
-<img align="right" alt="GIF" height="160px" src="https://avatars.githubusercontent.com/u/122496655?v=4" />
+<img align="right" alt="GIF" height="160px" src="https://i.pinimg.com/originals/06/60/ef/0660efe82fa3da42ed56eef013171835.gif" />
 
 ### I'm a recent graduate of [Henry](https://www.soyhenry.com/)
 
@@ -37,7 +37,7 @@ Throughout my adult life I completed my studies in two areas: Multimedia Design 
 
 ## Buenas! Soy Sofía Chiabudini 🙂
 
-<img align="right" alt="GIF" height="160px" src="https://avatars.githubusercontent.com/u/122496655?v=4" />
+<img align="right" alt="GIF" height="160px" src="https://i.pinimg.com/originals/06/60/ef/0660efe82fa3da42ed56eef013171835.gif" />
 
 ### Recientemente graduada de [Henry](https://www.soyhenry.com/)
 
