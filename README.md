@@ -35,9 +35,9 @@ Throughout my adult life I completed my studies in two areas: Multimedia Design 
 
 If you're interested in my projects, contact me through:
 
-!🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)
-!📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)
-!📞 +5492214347441
+🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)  
+📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)  
+📞 +5492214347441  
 
 ///////////////////////////////////////////////
 
@@ -78,6 +78,6 @@ A lo largo de mi vida adulta completé mis estudios en dos áreas: Diseño Multi
 
 Si te interesaron mis proyectos, te invito a contactarme por las siguientes vías:
 
-🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)
-📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)  
+📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)  
 📞 +5492214347441
