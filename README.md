@@ -33,6 +33,12 @@ There I learned numerous technical tools, but above all I was able to exploit my
 
 Throughout my adult life I completed my studies in two areas: Multimedia Design and Fashion Design. These journeys shaped my mind towards problem solving using creativity to the maximum.
 
+If you're interested in my projects, contact me through:
+
+🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)
+📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)
+📞 +5492214347441
+
 ///////////////////////////////////////////////
 
 ## Buenas! Soy Sofía Chiabudini 🙂
@@ -69,3 +75,9 @@ Allí aprendí numerosas herramientas técnicas, pero sobre todo pude explotar m
 #### Mini Bio
 
 A lo largo de mi vida adulta completé mis estudios en dos áreas: Diseño Multimedia y Diseño de Indumentaria. Estos trayectos moldearon mi mente hacia la resolución de problemas utilizando al máximo la creatividad.
+
+Si te interesaron mis proyectos, te invito a contactarme por las siguientes vías:
+
+🔗 [LinkedIn](https://www.linkedin.com/in/sofia-chiabudini/)
+📧 [sofiachiabudini@gmail.com](mailto:sofiachiabudini@gmail.com)
+📞 +5492214347441
