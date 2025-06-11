@@ -7,7 +7,7 @@
 There I learned numerous technical tools, but above all I was able to exploit my logical thinking capacity and reconnect with my love for teamwork, qualities that always been with me.
 
 - My last proyect [Essere](https://essereitalian.com/)
-- My first solo proyect [Viviendas Platense](https://www.viviendasplatense.com.ar/))
+- My first solo proyect [Viviendas Platense](https://www.viviendasplatense.com.ar/)
 - My most ambitious project [Indira Gold](https://www.youtube.com/watch?v=jysV2BSuHlc)
 
 ---
