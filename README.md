@@ -6,9 +6,9 @@
 
 There I learned numerous technical tools, but above all I was able to exploit my logical thinking capacity and reconnect with my love for teamwork, qualities that always been with me.
 
-- My last proyect [Viviendas Platense](https://www.viviendasplatense.com.ar/)
-- My first solo proyect [Countries APP](https://countriesapp-chiabudini.vercel.app/)
-- Previus web design proyect [Pluma Librería](https://plumalibreria.vercel.app/)
+- My last proyect [Essere](https://essereitalian.com/)
+- My first solo proyect [Viviendas Platense](https://www.viviendasplatense.com.ar/))
+- My most ambitious project [Indira Gold](https://www.youtube.com/watch?v=jysV2BSuHlc)
 
 ---
 
@@ -49,9 +49,9 @@ If you're interested in my projects, contact me through:
 
 Allí aprendí numerosas herramientas técnicas, pero sobre todo pude explotar mi capacidad de pensamiento lógico y reconectar con mi amor por el trabajo en equipo, cualidades que me han acompañado desde siempre.
 
-- Mi último proyecto [Viviendas Platense](https://www.viviendasplatense.com.ar/)
-- Mi primer proyecto individual [Countries APP](https://countriesapp-chiabudini.vercel.app/)
-- Proyecto previo de diseño web [Pluma Librería](https://plumalibreria.vercel.app/)
+- Mi último proyecto [Essere](https://essereitalian.com/)
+- Mi primer proyecto individual [Viviendas Platense](https://www.viviendasplatense.com.ar/)
+- Mi proyecto más ambicioso [Indira Gold](https://www.youtube.com/watch?v=jysV2BSuHlc)
 
 ---
 
