@@ -1,8 +1,8 @@
-## Hi, I'm Sofía Chiabudini 🙂
+## I'm Sofía Chiabudini
 
 <img align="right" alt="GIF" height="160px" src="https://i.pinimg.com/originals/06/60/ef/0660efe82fa3da42ed56eef013171835.gif" />
 
-### I'm a recent graduate of [Henry](https://www.soyhenry.com/)
+### Graduate of [Henry](https://www.soyhenry.com/) 2 years ago
 
 There I learned numerous technical tools, but above all I was able to exploit my logical thinking capacity and reconnect with my love for teamwork, qualities that always been with me.
 
@@ -41,11 +41,11 @@ If you're interested in my projects, contact me through:
 
 ///////////////////////////////////////////////
 
-## Buenas! Soy Sofía Chiabudini 🙂
+## Soy Sofía Chiabudini
 
 <img align="right" alt="GIF" height="160px" src="https://i.pinimg.com/originals/06/60/ef/0660efe82fa3da42ed56eef013171835.gif" />
 
-### Recientemente graduada de [Henry](https://www.soyhenry.com/)
+### Graduada de [Henry](https://www.soyhenry.com/) hace 2 años
 
 Allí aprendí numerosas herramientas técnicas, pero sobre todo pude explotar mi capacidad de pensamiento lógico y reconectar con mi amor por el trabajo en equipo, cualidades que me han acompañado desde siempre.
 
